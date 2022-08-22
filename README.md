@@ -7,4 +7,4 @@
 - 📫 How to reach me: linkdin-https://www.linkedin.com/in/krishna-tripathy-aa1b3120a
 - 😄 Pronouns: She/her
 - ⚡ Fun fact: I Spend almost 5 hrs listening songs everyday.
--->
+
